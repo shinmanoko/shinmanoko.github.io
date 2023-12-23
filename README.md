@@ -1,0 +1,1 @@
+# shinmanoko.github.io
